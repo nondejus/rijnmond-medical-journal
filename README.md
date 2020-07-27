@@ -1,1 +1,0 @@
-# rijnmond-medical-journal
